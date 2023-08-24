@@ -1,5 +1,3 @@
-Common Misconceptions About Stress
-===========================================================
 
 Stress is an unavoidable part of life, particularly in the modern workplace where demands and pressures can be high. However, there are many common misconceptions about stress that can hinder our ability to effectively manage it. In this chapter, we'll explore some of the most common misconceptions about stress and why they may be problematic.
 

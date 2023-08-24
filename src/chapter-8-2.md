@@ -1,5 +1,3 @@
-Providing Training and Professional Development Opportunities
-============================================================================================================
 
 One of the most effective ways to manage workplace stress is by providing training and professional development opportunities. In this chapter, we'll explore the benefits of providing these opportunities and strategies for integrating stress management into your organization's training and development programs.
 

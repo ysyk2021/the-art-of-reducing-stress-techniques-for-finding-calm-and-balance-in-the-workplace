@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-===============================================================================================
 
 Reducing stress in the workplace requires ongoing effort and a commitment to continuous learning and improvement. In this chapter, we'll explore ways to continue building on your stress reduction strategies and find new ways to enhance your well-being and productivity.
 

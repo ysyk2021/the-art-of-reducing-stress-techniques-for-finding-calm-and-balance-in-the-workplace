@@ -1,5 +1,3 @@
-Chapter 4: Identifying Sources of Stress
-========================================
 
 Stress can come from a variety of sources in the workplace, and it is essential to identify these stressors to effectively manage stress. In this chapter, we will explore techniques for identifying sources of stress at both the individual and organizational level.
 

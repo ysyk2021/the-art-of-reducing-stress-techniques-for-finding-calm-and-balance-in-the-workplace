@@ -1,5 +1,3 @@
-Chapter 6: Managing Workload and Time Management
-================================================
 
 Managing workload and time management are critical components of reducing stress in the workplace. In this chapter, we will explore techniques for identifying overwhelming workloads and deadlines, developing strategies for better time management, allocating time for tasks and projects, and incorporating breaks and rest.
 

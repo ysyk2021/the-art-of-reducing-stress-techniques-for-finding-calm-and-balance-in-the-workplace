@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Stress Reduction
-=====================================================
 
 Technology can be a powerful tool for reducing stress in the workplace. In this chapter, we'll explore ways to identify stress-reducing technologies and resources, use technology to enhance relaxation and mindfulness, foster accessibility and inclusivity, and avoid information overload.
 

@@ -1,5 +1,3 @@
-Avoiding Information Overload
-====================================================================================
 
 In today's fast-paced work environment, technology plays a significant role in how we work and communicate. However, the constant flow of information can quickly become overwhelming, leading to stress and decreased productivity. In this chapter, we will explore techniques for leveraging technology for stress reduction and avoiding information overload.
 

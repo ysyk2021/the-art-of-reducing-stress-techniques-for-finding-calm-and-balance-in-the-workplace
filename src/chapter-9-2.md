@@ -1,5 +1,3 @@
-Using Technology to Enhance Relaxation and Mindfulness
-=============================================================================================================
 
 Technology has become an integral part of our daily lives, and it can be leveraged as a powerful tool for stress reduction. In this chapter, we will explore how technology can be used to enhance relaxation and mindfulness in the workplace.
 

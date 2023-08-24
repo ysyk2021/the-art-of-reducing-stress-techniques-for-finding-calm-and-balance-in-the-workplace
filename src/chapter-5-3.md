@@ -1,5 +1,3 @@
-Incorporating Relaxation Techniques
-===============================================================================================
 
 Relaxation techniques are a proven way to reduce stress and promote overall well-being. In this chapter, we'll explore different relaxation techniques that can be incorporated into daily routines to help reduce stress in the workplace.
 

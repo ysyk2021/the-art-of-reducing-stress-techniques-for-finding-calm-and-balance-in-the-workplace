@@ -1,5 +1,3 @@
-Overview of Stress
-==============================================
 
 Stress is a natural part of life, and it's something that most people experience at some point in their lives. However, excessive or prolonged stress can be harmful to our physical and mental well-being. In this chapter, we'll define stress and provide an overview of the different types of stress.
 

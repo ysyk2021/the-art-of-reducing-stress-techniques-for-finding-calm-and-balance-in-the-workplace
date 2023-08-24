@@ -1,5 +1,3 @@
-Understanding the Science Behind Stress
-===================================================================
 
 Stress is a common experience in today's fast-paced and demanding work environment, but what exactly is stress? In this chapter, we'll explore the science behind stress and how it impacts our physical and mental well-being.
 

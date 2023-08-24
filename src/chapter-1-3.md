@@ -1,5 +1,3 @@
-Benefits of Finding Calm and Balance
-=============================================================
 
 In today's fast-paced and demanding work environment, stress is a common experience for many people. It's easy to feel overwhelmed and burnt out, leading to negative impacts on our physical and mental well-being. In this chapter, we'll explore the benefits of finding calm and balance in the workplace.
 

@@ -1,5 +1,3 @@
-Identifying Stress-Reducing Technologies and Resources
-=============================================================================================================
 
 Technology has become an integral part of our lives, and it can be leveraged to reduce stress levels in the workplace. In this chapter, we will explore some technologies and resources that can be used for stress reduction.
 

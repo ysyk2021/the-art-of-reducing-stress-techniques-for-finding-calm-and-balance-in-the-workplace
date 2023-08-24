@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-==============================================================================================
 
 Technology can be a powerful tool for reducing stress and promoting well-being in the workplace. However, it's essential to ensure that technology is accessible and inclusive for all employees. In this chapter, we will explore ways of leveraging technology mindfully to foster accessibility and inclusivity.
 

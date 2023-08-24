@@ -1,5 +1,3 @@
-Identifying Overwhelming Workloads and Deadlines
-==================================================================================================
 
 In this chapter, we will explore strategies for managing workload and time management to reduce stress levels in the workplace. By identifying overwhelming workloads and deadlines, individuals can take steps to prioritize tasks, manage time effectively, and promote a healthier work-life balance.
 

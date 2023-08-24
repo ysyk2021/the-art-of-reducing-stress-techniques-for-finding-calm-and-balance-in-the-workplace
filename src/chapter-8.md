@@ -1,5 +1,3 @@
-Chapter 8: Creating a Stress-Reducing Culture
-=============================================
 
 Creating a stress-reducing culture in the workplace can have a significant impact on the well-being and productivity of employees. In this chapter, we'll explore ways to encourage proactive stress reduction across the organization, provide training and professional development opportunities, foster knowledge sharing and mentorship, and celebrate stress-reducing achievements.
 

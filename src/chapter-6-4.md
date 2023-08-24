@@ -1,5 +1,3 @@
-Incorporating Breaks and Rest
-===============================================================================
 
 Managing workload and time management are critical factors in reducing stress and finding balance in the workplace. Incorporating breaks and rest into one's daily routine is a powerful way to manage workload and time effectively while also promoting physical and mental health.
 

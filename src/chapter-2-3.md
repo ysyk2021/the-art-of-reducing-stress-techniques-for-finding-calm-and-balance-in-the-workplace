@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Stress
-======================================================================
 
 Stress is a common experience in the workplace, but it can be challenging to define and manage. In this chapter, we will explore what stress is and how it affects us. We will also provide exercises to help you assess your personal approach to stress.
 
@@ -20,5 +18,4 @@ Conclusion
 ----------
 
 Assessing your personal approach to stress is an important step in managing stress effectively. By identifying your stressors, evaluating your stress response, and considering your mindset, you can develop strategies for coping with stress in a healthy and productive way. In the following chapters, we will explore techniques for reducing stress and finding calm and balance in the workplace.
-
 

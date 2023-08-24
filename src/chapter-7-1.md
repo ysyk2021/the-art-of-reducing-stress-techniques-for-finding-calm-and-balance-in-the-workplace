@@ -1,5 +1,3 @@
-Building Stronger Relationships with Coworkers
-===============================================================================================
 
 In this chapter, we will explore strategies for building stronger relationships with coworkers to foster a more supportive and positive work environment. Effective communication, empathy, and conflict resolution are critical skills that can contribute to improved relationships in the workplace.
 

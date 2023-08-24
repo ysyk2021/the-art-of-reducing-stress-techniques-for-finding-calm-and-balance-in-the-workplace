@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-===============================================================================================
 
 In this chapter, we will explore the importance of developing a stress-reducing mindset. By utilizing positive self-talk and visualization techniques, individuals can promote a sense of calm and balance in the workplace.
 

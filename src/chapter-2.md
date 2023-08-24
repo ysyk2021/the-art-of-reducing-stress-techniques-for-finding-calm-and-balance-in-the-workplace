@@ -1,5 +1,3 @@
-Chapter 2: Defining Stress
-==========================
 
 Stress is a common experience in the workplace, but it can be difficult to define and understand. In this chapter, we will explore the concept of stress, including its causes and effects, and techniques for assessing your personal approach to stress.
 

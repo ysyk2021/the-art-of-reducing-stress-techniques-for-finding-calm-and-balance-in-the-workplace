@@ -1,5 +1,3 @@
-Identifying Individual Stressors
-==========================================================================
 
 In this chapter, we will explore the importance of identifying individual stressors and how they affect our overall well-being in the workplace. By recognizing and addressing individual stressors, individuals can take steps to reduce stress levels and promote a healthier work environment.
 

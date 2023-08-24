@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 As you work to reduce stress in the workplace, it's important to assess the effectiveness of your strategies and adapt as needed. In this chapter, we'll explore ways to measure results and learn from experience, so you can continue making progress toward a more balanced and stress-free work life.
 

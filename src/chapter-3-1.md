@@ -1,5 +1,3 @@
-Techniques for Cultivating a Stress-Reducing Mindset
-=====================================================================================================
 
 In this chapter, we will explore techniques for cultivating a stress-reducing mindset. By developing new habits and adopting new perspectives, individuals can promote a sense of calm and balance in the workplace.
 

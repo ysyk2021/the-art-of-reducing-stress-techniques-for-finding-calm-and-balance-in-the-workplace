@@ -1,5 +1,3 @@
-Fostering Connection and Support
-============================================================================================
 
 Stress is a natural part of the workplace, but it's essential to develop effective strategies for reducing stress and fostering connection and support. In this chapter, we'll discuss techniques for developing effective stress-reducing strategies that foster connection and support in the workplace.
 

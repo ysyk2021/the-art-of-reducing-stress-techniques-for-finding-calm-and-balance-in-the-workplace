@@ -1,5 +1,3 @@
-Encouraging Proactive Stress Reduction Across the Organization
-=============================================================================================================
 
 In addition to individual efforts to manage stress, creating a stress-reducing culture across the organization can have a significant impact on reducing workplace stress. In this chapter, we'll explore strategies for creating a culture of stress reduction and promoting proactive stress management across the organization.
 

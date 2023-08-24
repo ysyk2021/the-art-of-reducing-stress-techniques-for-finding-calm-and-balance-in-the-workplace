@@ -1,5 +1,3 @@
-Addressing Barriers to Stress Reduction
-=================================================================================
 
 In this chapter, we will explore the importance of identifying sources of stress in the workplace. By understanding what causes stress, individuals can develop effective strategies for reducing stress levels and promoting a healthier work environment.
 

@@ -1,5 +1,3 @@
-Allocating Time for Tasks and Projects
-========================================================================================
 
 In this chapter, we will explore the importance of managing workload and time management in reducing stress levels in the workplace. By allocating time for tasks and projects and effectively managing workload, individuals can reduce stress levels and promote a healthier work environment.
 

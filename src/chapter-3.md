@@ -1,5 +1,3 @@
-Chapter 3: Developing a Stress-Reducing Mindset
-===============================================
 
 In order to effectively reduce stress in the workplace, it's important to cultivate a mindset that prioritizes well-being. By developing positive habits and thought patterns, employees can better manage stress and achieve greater balance and calm. In this chapter, we will explore techniques for cultivating a stress-reducing mindset.
 

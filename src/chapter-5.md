@@ -1,5 +1,3 @@
-Chapter 5: Developing Effective Stress-Reducing Strategies
-==========================================================
 
 In order to effectively reduce stress in the workplace, it is important to develop strategies that are tailored to your individual needs and preferences. This chapter will explore the principles of effective stress reduction, strategies for active stress reduction, incorporating relaxation techniques, and fostering connection and support.
 

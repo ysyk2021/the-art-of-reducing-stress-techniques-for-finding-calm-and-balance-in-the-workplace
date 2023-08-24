@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-=======================================================================================
 
 In this chapter, we will explore the importance of developing a stress-reducing mindset by setting realistic goals and objectives. By understanding the relationship between unrealistic expectations and stress, individuals can learn how to set achievable goals that promote a sense of accomplishment and reduce stress.
 

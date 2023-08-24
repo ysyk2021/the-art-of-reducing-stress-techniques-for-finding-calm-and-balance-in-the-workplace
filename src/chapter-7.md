@@ -1,5 +1,3 @@
-Chapter 7: Managing Interpersonal Relationships
-===============================================
 
 Interpersonal relationships play a critical role in reducing stress and promoting well-being in the workplace. In this chapter, we will explore techniques for building stronger relationships with coworkers, managing difficult coworkers and situations, practicing conflict resolution and communication skills, and fostering teamwork and collaboration.
 
