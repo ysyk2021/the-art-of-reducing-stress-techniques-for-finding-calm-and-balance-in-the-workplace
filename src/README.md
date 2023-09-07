@@ -12,3 +12,7 @@ By following the techniques and strategies outlined in this book, readers can de
 Overall, this book aims to provide an overview of the art of reducing stress in the workplace. Through exploring the various techniques and strategies associated with stress reduction, we hope to inspire individuals to prioritize their mental and physical health in the workplace and achieve a greater sense of balance and fulfillment in their careers.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
