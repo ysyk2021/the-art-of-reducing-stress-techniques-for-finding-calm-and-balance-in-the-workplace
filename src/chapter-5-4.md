@@ -1,5 +1,4 @@
-Chapter: Fostering Connection and Support
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering connection and support for reducing stress and finding calm and balance in the workplace. Building meaningful connections with colleagues, cultivating a supportive work environment, and seeking social support are essential for maintaining overall well-being. Let's delve into various techniques and strategies for fostering connection and support.
 

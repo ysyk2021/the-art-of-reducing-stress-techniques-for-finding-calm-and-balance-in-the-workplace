@@ -1,5 +1,4 @@
-Chapter: Incorporating Breaks and Rest
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of incorporating breaks and rest as essential techniques for reducing stress, finding calm, and achieving balance in the workplace. Many individuals often overlook the significance of taking regular breaks and allowing themselves to rest, leading to increased stress levels, decreased productivity, and a compromised sense of well-being. By understanding the benefits of incorporating breaks and rest, you can enhance your overall work performance, rejuvenate your mind and body, and foster a healthier work environment. Let's delve into the key aspects of incorporating breaks and rest.
 

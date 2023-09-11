@@ -1,5 +1,4 @@
-Chapter: Practicing Conflict Resolution and Communication Skills
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of practicing conflict resolution and communication skills for reducing stress and finding calm and balance in the workplace. Effective conflict resolution and communication are essential for maintaining healthy relationships, fostering a positive work environment, and minimizing stress-inducing conflicts. Let's explore various techniques and strategies for practicing conflict resolution and communication skills.
 

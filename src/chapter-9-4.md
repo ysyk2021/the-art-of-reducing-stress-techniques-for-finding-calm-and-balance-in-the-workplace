@@ -1,5 +1,4 @@
-Chapter: Avoiding Information Overload
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies for avoiding information overload in the workplace. In today's fast-paced digital age, we are constantly bombarded with an overwhelming amount of information, which can lead to stress, distraction, and a lack of focus. By implementing effective practices, we can manage information more efficiently and find calm and balance amidst the noise. Let's delve into techniques for avoiding information overload.
 

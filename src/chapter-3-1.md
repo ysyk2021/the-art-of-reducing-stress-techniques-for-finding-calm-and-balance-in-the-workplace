@@ -1,5 +1,4 @@
-Chapter: Techniques for Cultivating a Stress-Reducing Mindset
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for cultivating a stress-reducing mindset in the workplace. Our mindset plays a crucial role in how we perceive and respond to stressors. By adopting certain strategies and practices, we can develop a more resilient and calm approach to work-related challenges. Let's delve into techniques for cultivating a stress-reducing mindset.
 

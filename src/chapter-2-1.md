@@ -1,5 +1,4 @@
-Chapter: Overview of Stress
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of stress as a crucial topic in understanding the need for techniques to reduce stress, find calm, and achieve balance in the workplace. Stress is a common experience that can have a significant impact on our physical and mental well-being, as well as our work performance. By gaining a better understanding of stress and its effects, we can develop effective strategies to manage and mitigate its negative consequences. Let's delve into the key aspects of stress.
 

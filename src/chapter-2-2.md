@@ -1,5 +1,4 @@
-Chapter: Understanding the Science Behind Stress
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will dive into the science behind stress to gain a deeper understanding of how it impacts our bodies and minds. By understanding the underlying mechanisms of stress, we can better comprehend its effects on our overall well-being and develop effective techniques for reducing stress and finding calm in the workplace. Let's explore the key scientific aspects of stress.
 

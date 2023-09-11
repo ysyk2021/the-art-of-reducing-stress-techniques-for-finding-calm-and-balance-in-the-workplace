@@ -1,5 +1,4 @@
-Chapter: Using Technology to Enhance Relaxation and Mindfulness
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how technology can be utilized to enhance relaxation and mindfulness in the workplace. While technology often contributes to stress and distraction, it can also serve as a valuable tool for promoting well-being and finding calm. By leveraging appropriate digital resources, individuals can integrate technology into their daily routines to facilitate relaxation, foster mindfulness, and achieve a better balance in the workplace. Let's delve into techniques and strategies for using technology to enhance relaxation and mindfulness.
 

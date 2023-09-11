@@ -1,5 +1,4 @@
-Chapter: Setting Realistic Goals and Objectives
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting realistic goals and objectives for reducing stress and finding calm and balance in the workplace. Setting achievable targets plays a significant role in managing workload, maintaining motivation, and minimizing stress-inducing pressure. Let's delve into various techniques and strategies for setting realistic goals and objectives.
 

@@ -1,5 +1,4 @@
-Chapter: Fostering Accessibility and Inclusivity
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering accessibility and inclusivity in the workplace when it comes to reducing stress, finding calm, and achieving a better balance. Creating an environment that is accessible and inclusive benefits all employees, regardless of their unique needs and backgrounds. By prioritizing accessibility and inclusivity, organizations can promote well-being, reduce stressors, and enhance overall work satisfaction. Let's delve into techniques and strategies for fostering accessibility and inclusivity in the workplace.
 

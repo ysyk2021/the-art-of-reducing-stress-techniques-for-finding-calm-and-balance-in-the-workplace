@@ -1,5 +1,4 @@
-Chapter: Building Stronger Relationships with Coworkers
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of building strong relationships with coworkers as a means to reduce stress, foster a positive work environment, and find greater calm and balance in the workplace. Developing meaningful connections with your colleagues can enhance collaboration, improve communication, increase job satisfaction, and contribute to overall well-being. Let's delve into various strategies for building stronger relationships with coworkers.
 

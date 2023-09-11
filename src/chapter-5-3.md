@@ -1,5 +1,4 @@
-Chapter: Incorporating Relaxation Techniques
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of incorporating relaxation techniques as a means to reduce stress and find calm and balance in the workplace. Relaxation techniques are effective tools that can help alleviate stress, promote emotional well-being, enhance productivity, and improve overall job satisfaction. Let's delve into various relaxation techniques that you can incorporate into your daily routine.
 

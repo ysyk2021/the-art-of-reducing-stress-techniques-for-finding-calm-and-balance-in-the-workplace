@@ -1,5 +1,4 @@
-Chapter: Understanding the Principles of Effective Stress Reduction
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the fundamental principles of effective stress reduction techniques for finding calm and balance in the workplace. Understanding these principles will help you develop a solid foundation for managing and reducing stress effectively. Let's delve into the key principles of effective stress reduction.
 

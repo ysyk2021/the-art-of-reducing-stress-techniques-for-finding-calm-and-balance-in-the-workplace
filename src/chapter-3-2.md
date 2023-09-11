@@ -1,5 +1,4 @@
-Chapter: Utilizing Positive Self-Talk and Visualization
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful techniques of positive self-talk and visualization for reducing stress and finding calm and balance in the workplace. Our thoughts and internal dialogue have a significant impact on our well-being and ability to manage stress effectively. Let's delve into various techniques and strategies for utilizing positive self-talk and visualization.
 
